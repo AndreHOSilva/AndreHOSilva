@@ -1,4 +1,4 @@
-### OI👋 Bem vindos ao meu potfólio aqui no GitHub, como estão ?
+### OI👋 Bem vindos ao meu portfólio aqui no GitHub, como estão ?
 Me chamo André e sou um apaixonado por tecnologia agora fazendo parte do team generation Brasil, espero que curtam bastante minha página,
 no mais é só chamar 😁
 
